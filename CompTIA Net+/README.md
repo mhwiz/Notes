@@ -1,1 +1,0 @@
-## CompTIA Net+ Notes
